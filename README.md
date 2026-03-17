@@ -12,7 +12,7 @@ E-mail: marc.souz.carvalh@gmail.com
 
 LinkedIn:(https://www.linkedin.com/in/marco-antonio-souza-carvalho-614bb3329/)
 
-GitHub: https://github.com/marco4SC/Portf-lio-Profissional-Digital/main/README.md
+GitHub:[ https://github.com/marco4SC/Portf-lio-Profissional-Digital/main/README.md](https://github.com/marco4SC/Portf-lio-Profissional-Digital/blob/main/README.md)
 
 Outro : @marco.asc (instagram)
 
