@@ -52,6 +52,8 @@ Curso: Ingles – Instituição: Brasas – Ano: ____
 
 3. Projetos Acadêmicos e Profissionais
 =======================================
+
+
 Interpessoais
 Comunicação
 
